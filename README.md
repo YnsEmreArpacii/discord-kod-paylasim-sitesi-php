@@ -8,7 +8,7 @@ Sistem Kodları Sıfırdan LozBey Tarafından Kodlanmıştır ve Sizlere Sunulmu
 
 ## INDIRME LİNKİ ve KODLAYAN LİNKİ
 
-- [İNDİRMEK İÇİN TIKLA](https://www.github.com/octokatherine).
+- [İNDİRMEK İÇİN TIKLA](https://disk.yandex.com.tr/d/2TGziPi6P7H-hg).
 - [@LozBey](https://discord.com/users/951565906495025234) Tarafından Kodlanmıştır.
 
 | Copyright | 
